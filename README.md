@@ -1,1 +1,0 @@
-# CompVision-24-2
